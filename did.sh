@@ -1,1 +1,0 @@
-Since a key Congress leader has spoken in support of women and women's leadership, I humbly request him to support Prime Minister Narendra Modi's initiative to swiftly implement the bill granting 33 per cent reservation for women in Parliament," she told reporters
